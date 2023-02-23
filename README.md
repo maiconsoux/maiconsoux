@@ -4,7 +4,7 @@
 - :hearts: family
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- TENTANDO TRABALHAR NA INTERNET    U+1F377
+- TENTANDO TRABALHAR NA INTERNET    🍷 🗿
 <!---
 maiconsoux/maiconsoux is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
