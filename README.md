@@ -1,6 +1,7 @@
 - :trollface: olá meu nome é **Maicon**
 - :soccer:  I’m interested in football and song 
 - :cancer:
+- :viciando nela
 - :hearts: family
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
